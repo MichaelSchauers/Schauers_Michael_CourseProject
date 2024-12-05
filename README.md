@@ -1,1 +1,1 @@
-Thank you for a great semeester!
+Thank you for a great semester!
